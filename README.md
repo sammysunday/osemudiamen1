@@ -1,2 +1,0 @@
-# osemudiamen1
-Student
